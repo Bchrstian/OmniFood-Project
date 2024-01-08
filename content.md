@@ -107,8 +107,8 @@ I got Omnifood for the whole family, and it frees up so much time! Plus, everyth
 
 ### Contact information
 
-Address: 623 Harrison St., 2nd Floor, San Francisco, CA 94107
-Phone: 415-201-6370
+Address: KG 215 St., 2nd Floor, Kigali Rwanda, POX 94107
+Phone: 250782048981
 Email: hello@omnifood.com
 
 Social profiles: instagram, facebook, twitter [links to them not available yet]
